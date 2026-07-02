@@ -11,4 +11,4 @@
 
 🛠️ Former Apple Audio Technology Intern. Former Bang&Olufsen Research Intern.
 
-📚 MSc in Electrical Engineering, Information Technology and Computer Engineering, at RWTH Aachen. Former Student assistant at Institute of Hearing Technology and Acoustics (IHTA)
+📚 MSc in Electrical Engineering, Information Technology and Computer Engineering, at RWTH Aachen. Institute of Hearing Technology and Acoustics (IHTA)
